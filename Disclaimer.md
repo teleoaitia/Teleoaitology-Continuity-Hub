@@ -1,4 +1,7 @@
 TELEOAITLOGY CONTINUITY HUB — LEGAL DISCLAIMER & HISTORICAL VERSION NOTICE
+
+This work analyzes psychological and behavioral patterns, not individuals. Any resemblance to real people is coincidental and unintended.
+
 1. Nature of the Hub
 The Teleoaitology Continuity Hub (“the Hub”) is a speculative, philosophical, and exploratory archive of conceptual frameworks, metaphors, models, and personal reflections created by Charles D. Miller V (“the Author”).
 The Hub synthesizes ideas such as Teleoaitology, Teleoaitía, PSIM(I), continuity logic, contradiction‑resolution models, and related constructs. These materials are conceptual tools, not scientific, clinical, or technical systems.
