@@ -1,4 +1,7 @@
 # Intent and Scope
+
+Do NOT misread old versions… this repository is speculative… old versions reflect exploratory drafts predating the current framework. These notes… are works in progress and should not be taken as final conclusions or professional advice. The content is incomplete and evolving. Everything in this repository is speculative. 
+
 This work examines psychological patterns, behavioral dynamics, and internal/external dissonance as they appear across human experience. The concepts, frameworks, and descriptions in this repo refer to universal patterns, not to any specific individual, group, institution, or public figure.
 
 No person is depicted, referenced, or implied.  
