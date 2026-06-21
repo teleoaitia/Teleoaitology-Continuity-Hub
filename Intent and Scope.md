@@ -1,5 +1,5 @@
 # Intent and Scope
-This work examines psychological patterns, behavioral dynamics, and internal/external dissonance as they appear across human experience. The concepts, frameworks, and descriptions in this book refer to universal patterns, not to any specific individual, group, institution, or public figure.
+This work examines psychological patterns, behavioral dynamics, and internal/external dissonance as they appear across human experience. The concepts, frameworks, and descriptions in this repo refer to universal patterns, not to any specific individual, group, institution, or public figure.
 
 No person is depicted, referenced, or implied.  
 Any resemblance to real individuals—living or dead—is purely coincidental and unintended.
