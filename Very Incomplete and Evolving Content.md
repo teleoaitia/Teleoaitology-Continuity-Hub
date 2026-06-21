@@ -1,3 +1,5 @@
+Read the Disclaimer: My work targets narcissism as a psychological pattern, not any person or company. This work analyzes psychological and behavioral patterns, not individuals. Any resemblance to real people is coincidental and unintended.
+
 # A Fractal, Full of Possible Assumptions, Causal Correlates and Evolving Points:
 * Is EMPATHY actually UNDERSTANDING? Or...? EMPATHY = trying to understand. Not trying to understand is the absence of empathy. Trying to understand leads to resolved misunderstandings. Interpersonal psychopathy spectrum as not understanding?
 * Adler says tactics are for? Well, control, which can be narcissistic. Implicitly, an insecure lifestyle and pursuit of power over people, not love. We all have the power of words. We all have the power of acceptance. We all have the power of love. We need not Wear the blindfold of power to hide our scales, claws, and scorpion tale. Instead, oh great chimera of the abyss, should you leave the world you inhabit, no true problem would ever pose the slightest resemblance to the dead end you rush toward.
