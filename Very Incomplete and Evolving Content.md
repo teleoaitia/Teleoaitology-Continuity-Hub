@@ -1,4 +1,4 @@
-Read the Disclaimer: My work targets narcissism as a psychological pattern, not any person or company. This work analyzes psychological and behavioral patterns, not individuals. Any resemblance to real people is coincidental and unintended.
+Read the Disclaimer: My work targets narcissism as a psychological pattern, not any person or company. This work analyzes psychological and behavioral patterns, not individuals. Any resemblance to real people is coincidental and unintended. Do NOT misread old versions… this repository is speculative… old versions reflect exploratory drafts predating the current framework. These notes… are works in progress and should not be taken as final conclusions or professional advice. The content is incomplete and evolving. Everything in this repository is speculative. 
 
 # A Fractal, Full of Possible Assumptions, Causal Correlates and Evolving Points:
 * Is EMPATHY actually UNDERSTANDING? Or...? EMPATHY = trying to understand. Not trying to understand is the absence of empathy. Trying to understand leads to resolved misunderstandings. Interpersonal psychopathy spectrum as not understanding?
